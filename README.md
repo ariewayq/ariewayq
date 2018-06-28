@@ -1,2 +1,2 @@
 # ariewayq
-Free News Blogger | News ariewayq.xrb.blogspot.com
+Free News Blogger | https://ariewayq-xrb.blogspot.com/
